@@ -1,5 +1,5 @@
 # Submerged
-Carte en  modé pour among uus
+Carte en mode pour among uus
 
 
 
